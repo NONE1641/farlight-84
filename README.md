@@ -1,6 +1,6 @@
 # farlight-84
 群829021823
-farlight 84 Aimbot 远光84作弊
+farlight 84 Aimbot 远光84作弊 AIMBOT BAN ！ 自瞄封号
 测试卡----ED6AD6E2DB572J9ZZ3----天卡----2025-03-22
 测试卡----ED275DCD261A6G5VLK----天卡----2025-03-22
 测试卡----452DD6CDA62E7PCDVM----天卡----2025-03-22
